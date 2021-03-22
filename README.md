@@ -4,7 +4,7 @@
  - Edad: 26 años
 - Hobbys :  
   
-          VOLEY
+          VOLEY  Federada - LIGA UNILIVO DE VOLEY
             Equipo: UTN - FRD - CAMPANA 
             Posición : Armadora 
             C1amiseta: #1
