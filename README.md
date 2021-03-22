@@ -7,7 +7,7 @@
           VOLEY
             Equipo: UTN - FRD - CAMPANA 
             Posición : Armadora 
-            Camiseta: #4
+            C1amiseta: #1
             
             Equipo : FERRO - ZARATE
             Posición: Armadora y Punta  Atacante x 4
