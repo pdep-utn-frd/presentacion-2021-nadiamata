@@ -23,10 +23,10 @@
         AJEDREZ
              -Campeonato Regional
               - Campeonato Local
-              - Campeonato Abierto 
+              - Campeonato Abierto
         NATACIÓN
-Curiosidades: Amo los animales y sobre todo a los perros. Tengo un perro de la calle que tiene 6 años que se llama Santino. Le gustan los bizcochos 9 de oro . Te pide uno en el desayuno y otro en la merienda sino no  te deja tranquilo.
+Curiosidades: Amo los animales y sobre todo a los perros. Tengo un perro rescatado de la calle que tiene 6 años que se llama Santino. Le gustan los bizcochos 9 de oro. Te pide uno en el desayuno y otro en la merienda sino no te deja tranquilo
 
 Pelicula Preferida /Novela: "Juro solemnemente que mis intensiones......." (si no sabes como termina la frase siga de largo a otra presentación)
-Libros: Amo el género Policial o las novelas de Fantasia (algunas). 
+Libros: Amo el género Policial o las novelas de Fantasia (algunas).
 Autor Preferido: Arthur Conan Doyle./Stieg Larsson 
