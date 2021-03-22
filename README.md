@@ -27,5 +27,4 @@
         NATACIÓN
 Curiosidades: Amo los animales y sobre todo a los perros. Tengo un perro de la calle que tiene 6 años que se llama Santino. Le gustan los bizcochos 9 de oro . Te pide uno en el desayuno y otro en la merienda sino no  te deja tranquilo.
 
-Serie Preferida: Juro solemnemente que  mis intensiones .........(Si no sabes como sigue la frase  pase de largo a otra presentación)
-
+Pelicula Preferida /Novela: "Juro solemnemente que mis intensiones......." (si no sabes como termina la frase siga de largo a otra presentación)
