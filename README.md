@@ -34,8 +34,7 @@
    Hermione: Por su fidelidad ademas de inteligencia.
    Severus Snape: A pesar de las malas decisones que tomó en su vida , pudo redimirse. Demuestra que todos nos equivocamos y podemos tener una segunda oportunidad.
 
--Escena: Harry y Hermione bailando. 
-         Hermione golpeando a Malfoy 
+-Escena:  Harry bailando con Hermione /Hermione Golpeando a malfoy
          
 - Libros : Sherlock Holmes, género policial.
 - Autor Preferido: Artur Conan Doyle /Stieg Larsson
