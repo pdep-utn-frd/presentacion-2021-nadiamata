@@ -29,15 +29,12 @@ Curiosidades: Amo los animales y sobre todo a los perros. Tengo un perro rescata
 
 Pelicula Preferida /Novela: "Juro solemnemente que mis intensiones......." (si no sabes como termina la frase siga de largo a otra presentación)
 
+-Magos Preferidos
+   Hermione: Por su fidelidad ademas de inteligencia.
+   Severus Snape: A pesar de las malas decisones que tomó en su vida , pudo redimirse. Demuestra que todos nos equivocamos y podemos tener una segunda oportunidad.
 
-Magos preferidos:
--Hermione (por su fidelidad además de inteligencia)
--Severus Snape (A pesar de las decisiones que tomó en su vida pudo redimirse. Demuestra que todos nos equivocamos y podemos tener una segunda oportunidad)
-
-Escena:
-
-La de Harry y Hermione bailando. Porque Hermione siempre lo cuidaba a Harry pero en ese momento él se dio cuenta que tenia que cuidarla a ella.
-Hermione golpeando a Malfoy
-
-Libros:  Genero Policial
-Autor Preferido: Arthur Conan Doyle./Stieg Larsson 
+-Escena: Harry y Hermione bailando. 
+         Hermione golpeando a Malfoy 
+         
+- Libros : Sherlock Holmes, género policial.
+- Autor Preferido: Artur Conan Doyle /Stieg Larsson
