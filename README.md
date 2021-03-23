@@ -25,9 +25,10 @@
               - Campeonato Local
               - Campeonato Abierto
         NATACIÓN
-Curiosidades: Amo los animales y sobre todo a los perros. Tengo un perro rescatado de la calle que tiene 6 años que se llama Santino. Le gustan los bizcochos 9 de oro. Te pide uno en el desayuno y otro en la merienda sino no te deja tranquilo
 
-Pelicula Preferida /Novela: "Juro solemnemente que mis intensiones......." (si no sabes como termina la frase siga de largo a otra presentación)
+- Curiosades: Amo los animales sobre todo a los perros. Tengo uno rescatado de la calle que se llama Santino y tiene 6 años. Le encantan los bizochitos 9 de oro, te pide uno a la mañana en el desayuno y otro a la tarde para la merienda sino no te deja tranquilo.
+
+- Pelicula Preferida/Saga:  "juro solemnemente que mis intensiones.............(si no sabes como termina la frase siga de largo a otra presentación)"
 
 -Magos Preferidos
    Hermione: Por su fidelidad ademas de inteligencia.
