@@ -37,7 +37,7 @@ Magos preferidos:
 Escena:
 
 La de Harry y Hermione bailando. Porque Hermione siempre lo cuidaba a Harry pero en ese momento él se dio cuenta que tenia que cuidarla a ella.
-Hermione golpeando aMalfoy
+Hermione golpeando a Malfoy
 
 Libros:  Genero Policial
 Autor Preferido: Arthur Conan Doyle./Stieg Larsson 
