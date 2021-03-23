@@ -28,5 +28,16 @@
 Curiosidades: Amo los animales y sobre todo a los perros. Tengo un perro rescatado de la calle que tiene 6 años que se llama Santino. Le gustan los bizcochos 9 de oro. Te pide uno en el desayuno y otro en la merienda sino no te deja tranquilo
 
 Pelicula Preferida /Novela: "Juro solemnemente que mis intensiones......." (si no sabes como termina la frase siga de largo a otra presentación)
-Libros: Amo el género Policial o las novelas de Fantasia (algunas).
+
+
+Magos preferidos:
+-Hermione (por su fidelidad además de inteligencia)
+-Severus Snape (A pesar de las decisiones que tomó en su vida pudo redimirse. Demuestra que todos nos equivocamos y podemos tener una segunda oportunidad)
+
+Escena:
+
+La de Harry y Hermione bailando. Porque Hermione siempre lo cuidaba a Harry pero en ese momento él se dio cuenta que tenia que cuidarla a ella.
+Hermione golpeando aMalfoy
+
+Libros:  Genero Policial
 Autor Preferido: Arthur Conan Doyle./Stieg Larsson 
