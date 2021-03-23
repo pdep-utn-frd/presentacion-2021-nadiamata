@@ -30,10 +30,11 @@
 
 - Pelicula Preferida/Saga:  "juro solemnemente que mis intensiones.............(si no sabes como termina la frase siga de largo a otra presentación)"
 
--Magos Preferidos
+-Magos Preferidos: 
+    
    Hermione: Por su fidelidad ademas de inteligencia.
    Severus Snape: A pesar de las malas decisones que tomó en su vida , pudo redimirse. Demuestra que todos nos equivocamos y podemos tener una segunda oportunidad.
-
+  
 -Escena:  Harry bailando con Hermione /Hermione Golpeando a malfoy
          
 - Libros : Sherlock Holmes, género policial.
